@@ -1,0 +1,1 @@
+# las-miniatura-l-mpara
